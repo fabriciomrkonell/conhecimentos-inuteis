@@ -1,0 +1,1 @@
+>  Na segunda guerra mundial, os Kamikazes usavam capacete para proteger as orelhas e a cabeça do frio, e não por motivos de segurança (por motivos óbvios).
